@@ -1,0 +1,8 @@
+Bref, déjà j'ai imaginé tout un système géo-politique. Pour résumer ce système se base sur 3 grosses parties dirigé sur trois gros piliers d'une population. Ces parties étaient donc 3 villes, sous des grosses bulles où il y avait un ciel artificiel où il faisait toujours beau, villes "propres" sans industries polluantes. Les 3 parties se menaient une genre de guerre sur tous les fronts (genre sur civ, guerre économique, touristique, militaires), mais étaient à la fois tres dépendante des autres, donc situation genre complexe.
+
+Au milieu de ces trois villes, il y a une grosse zone avec genre un brouillard de guerre et une athmosphere très basse. C'est dans la zone ou y a genre tous les trucs illégaux, les industries polluantes, les coups bas entre zones qui se passent.
+
+Mais plus intéressant, il y a les gens "hors société" ou des personnes curieuses qui arrivent "illégalement" dans cette zone pour tenter de faire des choses. J'ai donc revé que j'étais (ou quelqu'un d'autre sans visage) dans cette zone, avec un petit groupe de gens de mon age, pour suivre une fille afin de faire voler une sonde au-dessus de l'atmosphere. À savoir que dans cette société imaginée, c'est un crime d'envoyer un objet dans l'espace.
+
+On fait donc voler un truc au-dessus de l'athmosphere,  et découvre que l'espace était extremement pollué (sans surprise, c'était soit ca, soit des aliens). Et bien sur, comme envoyer un objet dans l'espace ce n'est pas super discret, meme en plein brouillard, on se fait poursuivre par une sorte de police militaire et on se fait chopper.
+Mon reve s'arrete ici. Et vu que je veux voir la suite, je vais reboire du maté. Bisous.
