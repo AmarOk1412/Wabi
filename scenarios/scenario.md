@@ -56,12 +56,24 @@ There is no revendication for now, but authorities suspect that the community of
 
 XXX mange dans la ville et se deplace jusqu'a son boulot.
 - "Et c'est comme ca tous les jours... meurtre, arrestations, assassinats, trafic. <COUNTRY> <COUNTRY> <COUNTRY> s'affrontent et inter-dependent entre-elles. L'une fournissant l'energie necessaire aux deux autres... l'autre les matieres permieres et la bouffe et la troisieme fournissant des robots pour transformer les matieres..."
+
+Page 5:
 - "3 pouvoirs se detestant, mais ayant besoin des autres pour survivre... Une fois amies, une fois ennemies."
+2 cases : 1 avec la TV guerre ; 1 avec le journal politique d'entente
+- Au milieu de tout ca, nous et notre routine.
+1 grande case avec Seb arrivant au bureau
+- Se lever, subissant le pouvoir d'authoritees floues en imposant notre pouvoir sur des machines,
+2 cases, 1 se faisant virer - 1 ou branche un robot
 
-Au milieu de tout ca, nous et notre routine. Se lever, subissant le pouvoir d'authoritees floues en imposant notre pouvoir sur des machines, rentrer, se divertir, recommencer.
+Page 6: 3 cases
+rentrer, se divertir, dormir.
 
+Page 7 + Page 8 1/2 ; 6 cases
+Or like an old quotation: eat, work, sleep, repeat
 Page reprenant quelques cases pour fiare la journee precedente.
 
+Page 8 end;
+eat.. wait, who is this?
 Refaire, puis finir, "mais qui est-ce?" => YYYY, sourire
 
 ## Rencontre
